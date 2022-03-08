@@ -1,0 +1,27 @@
+- 👋 Hi, I’m @LsD-designs
+- 👀 I’m interested in ... NFT's CRYPTO GRAPHIC DESIGN ART FASHION 
+- 🌱 I’m currently learning ...UI / UX 3D AR VR GRAPHIC DESIGN 
+- 💞️ I’m looking to collaborate on ...NFT PROJECTS 
+- 📫 How to reach me ... LeahSunshineDesignsLsD@gmail.com 
+- TWITTER: @LsD_Designs
+- INSTAGRAM: @LsD-DeSigns
+- FACEBOOK:  https://www.facebook.com/LeahSunshineDesignsLSD
+- FACEBOOK: https://www.facebook.com/SinsationallySunshine
+- FACEBOOK: https://www.facebook.com/VoicelessAngels
+- FACEBOOK: https://www.facebook.com/SinsationallyYourOnlySunshine/
+- TIKTOK:  https://www.tiktok.com/@leahsunshinedesignslsd?lang=en
+- SNAPCHAT: SinsationallySunshine @ lsd_designs
+- BEACONS: https://beacons.ai/lovelifesunshine?fbclid=IwAR1AO62FbYtBZDIeaVLepYc4gytXIT83DwPSN_pigcF0fJYdWjcvIJ1vzdE
+- SPATIAL:  https://spatial.io/rooms/621bcb548f47d50001cdb522?share=2745638520165290695
+- OPENSEA:  https://opensea.io/Lsd_Designs
+- CRYPTO.COM: https://crypto.com/nft/profile/lovelifesunshine?tab=created
+- DISCORD: lsd_designs#3941
+- BLOGSPOT: https://sinsationallysunshine.blogspot.com/
+- BLOGSPOT: https://voicelessangels.blogspot.com/
+- YOUTUBE: https://www.youtube.com/channel/UCz4H6HK8Q_zY8quy7NyL11g
+- YOUTUBE: https://www.youtube.com/channel/UCn87j2OME5br6NXStpqJmjQ
+- YOUTUBE: https://www.youtube.com/watch?v=5Y0QrN0wmxE
+- REDDIT: https://www.reddit.com/user/love_life_sunshine
+- REDDIT: https://www.reddit.com/user/Love_Sinsationally
+- REDDIT: https://www.reddit.com/user/Lsd_design
+- 
